@@ -2,4 +2,4 @@
 - 👀 I’m interested in cyber security
 - 🌱 I’m currently learning C basics 
 - 💞️ I’m looking to collaborate on nothing rn (sorry lol)
-- 📫 How to reach me drop me a message +923322351849
+- 📫 How to reach me drop me a message mubashirwasi7@gmail.com OR Twitter: Muhd_Mubi
